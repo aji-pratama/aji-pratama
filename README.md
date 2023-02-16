@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-My name is Aji Pratama, Experienced Software Engineer from Indonesia
+My name is Aji Pratama, experienced Software Engineer from Indonesia
